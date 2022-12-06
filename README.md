@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Yuri1710
-- 👀 *I’m interested in dancing specially bachata and salsa,watch trillers and series,also as spend time with my family.*
+- 👀 *I’m interested in dancing specially bachata and salsa,watch trillers and series,also spend time with my family.*
 - 🌱 **I’m currently learning Data Analyst**
 - 📫 **How to reach me at my e-mail _yuridia.barrera@outlook.com_**
 
